@@ -1,4 +1,4 @@
 # AIDay.song
-A thousand songs in a thousand people's hearts, let's Go beyond the heart!
+A thousand songs in a thousand people's hearts, let's go beyond the heart!
 
-## Go Beyond The Heart
+## 《Go Beyond The Heart》
