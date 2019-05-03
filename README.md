@@ -1,4 +1,4 @@
 # AIDay.Song
-A thousand songs in a thousand people's hearts, let's go beyond the heart!
+A thousand AIDay Theme Tunes/songs in a thousand people's hearts, just show it. Maybe we can go beyond the heart!
 
 ## 《Go Beyond The Heart》/ 超越心灵（心灵之上）
