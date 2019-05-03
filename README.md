@@ -1,4 +1,4 @@
-# AIDay.Song
+# AIDay.Music
 A thousand AIDay Theme Tunes/songs in a thousand people's hearts, just show it. Maybe we can go beyond the heart!
 
 ## The theme music should be:
