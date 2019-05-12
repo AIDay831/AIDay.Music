@@ -22,11 +22,11 @@ A thousand AIDay Theme Tunes/songs in a thousand people's hearts, just show it. 
 我知道  有一束光
 是你我相通的灵犀
 
-心灵之上，智慧的光芒
+心灵之上，智慧的光芒<br/>
 让所有的梦想绽放 
 生命高扬的力量
 
-心灵之上，不熄的光芒
+心灵之上，不熄的光芒<br/>
 让我无法停止想象
 我们未来的模样
 
@@ -44,17 +44,17 @@ A thousand AIDay Theme Tunes/songs in a thousand people's hearts, just show it. 
 我相信  有一束光
 将你我未来连在一起
 
-心灵之上，智慧的光芒
+心灵之上，智慧的光芒<br/>
 让所有的梦想绽放 
 生命高扬的力量
 
-心灵之上，不熄的光芒
+心灵之上，不熄的光芒<br/>
 让我无法停止想象
 我们未来的模样
 
 ......
 
-我无法停止想象
+我无法停止想象<br/>
 我们未来的模样
 
 ......
