@@ -32,7 +32,7 @@ A thousand AIDay Theme Tunes/songs in a thousand people's hearts, just show it. 
 
 ......
 
-我们总是相互的鼓励
+我们总是相互地鼓励
 并不在乎彼此的差异
 
 我们运用不同的原理
