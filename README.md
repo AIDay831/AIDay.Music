@@ -13,8 +13,8 @@ A thousand AIDay Theme Tunes/songs in a thousand people's hearts, just show it. 
 我们问着相同的问题
 并不寻求答案的唯一
 
-我们有着（无数）疯狂的想法
-却演绎着相同的逻辑
+我们有着疯狂的想法
+却遵循着基本的逻辑
 
 我们对世界一无所知
 但我们时刻充满好奇
