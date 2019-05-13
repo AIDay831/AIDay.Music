@@ -24,7 +24,7 @@ A thousand AIDay Theme Tunes/songs in a thousand people's hearts, just show it. 
 
 心灵之上，智慧的光芒<br/>
 让所有的梦想绽放 
-生命高扬的力量
+我们最高的崇尚
 
 心灵之上，不熄的光芒<br/>
 让我无法停止想象
@@ -32,7 +32,7 @@ A thousand AIDay Theme Tunes/songs in a thousand people's hearts, just show it. 
 
 ......
 
-我们总是爱得很彻底
+我们总是相互的鼓励
 并不在乎彼此的差异
 
 我们运用不同的原理
@@ -46,7 +46,7 @@ A thousand AIDay Theme Tunes/songs in a thousand people's hearts, just show it. 
 
 心灵之上，智慧的光芒<br/>
 让所有的梦想绽放 
-生命高扬的力量
+我们最高的崇尚
 
 心灵之上，不熄的光芒<br/>
 让我无法停止想象
