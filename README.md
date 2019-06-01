@@ -8,7 +8,7 @@ A thousand AIDay Theme Tunes/songs in a thousand people's hearts, just show it. 
 <li>Music types are not limited, and all kinds of playing versions are welcome, including AI non-gender sound version. / 音乐类型不限，欢迎各种演绎版本，包括AI无性别声音版。
 </ul>
 
-## 《Go Beyond The Heart》/ 心灵之上（超越心灵）
+## 《Go Beyond The Heart》/ 心灵之上
 
 我们追问相同的问题 / 并不寻求答案的唯一
 
@@ -24,7 +24,7 @@ A thousand AIDay Theme Tunes/songs in a thousand people's hearts, just show it. 
 在你我的天空生长 / 迎难而上的力量
 
 心灵之上 / 不熄的光芒<br/>
-千年岁月不能遗忘 / 你最纯真的善良
+在千年的星空闪亮 / 你最纯真的善良
 
 ......
 
@@ -32,7 +32,7 @@ A thousand AIDay Theme Tunes/songs in a thousand people's hearts, just show it. 
 
 我们总是真诚地鼓励 / 并不排斥相互的差异 
 
-我们运用不同的原理 / 诠释人生的共同意义
+我们运用不同的原理 / 诠释共同的“人生”意义
 
 我们对未来一无所知 / 但它时刻带来惊喜
 
