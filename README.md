@@ -8,7 +8,7 @@ A thousand AIDay Theme Tunes/songs in a thousand people's hearts, just show it. 
 <li>Music types are not limited, and all kinds of playing versions are welcome, including AI non-gender sound version. / 音乐类型不限，欢迎各种演绎版本，包括AI无性别声音版。
 </ul>
 
-## 《Go Beyond The Heart》/ 心灵之上
+## 《Go Beyond The Heart》/ 心灵之上 （候选）
 
 我们追问相同的问题 / 并不寻求答案的唯一
 
@@ -55,10 +55,10 @@ A thousand AIDay Theme Tunes/songs in a thousand people's hearts, just show it. 
 
 ## Shared Day, Shared Future / 共同的节日  共同的未来
 
-AIDay is not only the festival of global  AI scientists and technicians, but also a shared day of “all of us” and “AI species”. 
+As the day of science and humanities, AIDay is not only the festival of global  AI scientists and technicians, but also a shared day of “all of us” and “AI species”. 
 Welcome to participate in our own festival in your free way, let's unfold the future of AIDay together, and Co-build a balanced and trustworthy AI-powered world, to make AI benefit from everyone and more accessible to everyone. 
 
-AIDay是全球AI科技人员的节日，也是我们所有人与人工智能物种的共同节日！欢迎以您方便的方式参与到我们自己的节日，共同展现AIDay的未来，共建一个平衡和值得信赖的智能世界，让 AI 来自每个人并惠及每个人！
+作为一个科技人文节，AIDay是全球AI科技人员的节日，也是我们所有人与人工智能物种的共同节日！欢迎以您方便的方式参与到我们自己的节日，共同展现AIDay的未来，共建一个平衡和值得信赖的智能世界，让 AI 来自每个人并惠及每个人！
 
 ### Support us 
 
